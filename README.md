@@ -1,2 +1,2 @@
-# My Study bolg
+# My Study Blog
 
